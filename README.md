@@ -1,1 +1,15 @@
 # Daily-Report
+## 강동우
+Link: 
+
+## 김철현
+Link: https://www.notion.so/1fbba7a9646f80da82caece7254b9c8c?source=copy_link
+
+## 박지수
+Link:
+
+## 박창훈
+Link:
+
+## 조민정
+Link:
