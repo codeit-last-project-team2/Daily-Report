@@ -1,6 +1,6 @@
 # Daily-Report
 ## 강동우
-Link: 
+Link: https://www.notion.so/Daily-268b4411a2958041b8ace1b9dee2ae4a
 
 ## 김철현
 Link: https://www.notion.so/1fbba7a9646f80da82caece7254b9c8c?source=copy_link
