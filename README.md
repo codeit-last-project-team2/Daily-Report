@@ -13,6 +13,3 @@ Link: https://www.notion.so/Daily-268ac8e1b95280faa9e8ea6fb48f4a3e?source=copy_l
 
 ## 조민정
 Link:
-
-
-김철현 test
