@@ -12,4 +12,4 @@ Link: https://www.notion.so/_-26803752e5f980fb97adf9a2fb986906
 Link: https://www.notion.so/Daily-268ac8e1b95280faa9e8ea6fb48f4a3e?source=copy_link
 
 ## 조민정
-Link:
+Link: https://www.notion.so/268f7116577b805f9be5dd30746522d1
