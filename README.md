@@ -9,7 +9,7 @@ Link: https://www.notion.so/1fbba7a9646f80da82caece7254b9c8c?source=copy_link
 Link:
 
 ## 박창훈
-Link:
+Link: https://www.notion.so/Daily-268ac8e1b95280faa9e8ea6fb48f4a3e?source=copy_link
 
 ## 조민정
 Link:
